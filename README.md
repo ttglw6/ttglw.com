@@ -31,7 +31,7 @@
   https://ttglw6.com
 
 - 最新入口  
-  http:/ttgl2.com
+  http:/ttgl10.com
 - 备用访问地址（免翻墙）  
   http://ttglw8.com
 
