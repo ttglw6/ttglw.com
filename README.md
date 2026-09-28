@@ -31,7 +31,7 @@
   https://ttglw6.com
 
 - 最新入口  
-  http://ttgl10.com
+  http://ttgl13.com
 - 备用访问地址（免翻墙）  
   http://ttglw8.com
 
@@ -43,7 +43,7 @@
   https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001
 
 - 官方 X（Twitter）账号  
-  https://x.com/ttglw1688 
+  https://x.com/ttglwcg168
 
 ---
 
